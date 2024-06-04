@@ -10,4 +10,4 @@ utilizo este espaço para organização e compartilhamento dos meus projetos
 Para entrar em contato comigo
 00001106219119sp@al.educacao.sp.gov.br
 
-<img src="https://media1.tenor.com/m/lVz8k3UScr8AAAAd/matu%C3%AA-filipe-ret.gif" alt="Matuê Filipe Ret GIF - Matuê Filipe Ret Rap GIFs"/>![image](https://github.com/MRSDMJC/MRSDMJC/assets/171064633/544e98b4-391f-499e-91d6-85f2e5827694)
+![](https://media1.tenor.com/m/lVz8k3UScr8AAAAd/matu%C3%AA-filipe-ret.gif)
